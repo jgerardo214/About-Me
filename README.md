@@ -1,7 +1,5 @@
 About Me
 
-Spencer Curtis (again)
+Jonathan Gerardo
 
-Favorite Color: Blue
 
-Favorite Food: Empanadas
